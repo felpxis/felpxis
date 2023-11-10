@@ -11,3 +11,5 @@ Meu nome é Felipe kid ben...
 felipe.matos.correia@escola.pr.gov.br
 
 ![](https://media.tenor.com/VjDP2psp13sAAAAd/cachorrinho-doguinho.gif)
+![](https://media.tenor.com/VjDP2psp13sAAAAd/cachorrinho-doguinho.gif)
+![](https://media.tenor.com/VjDP2psp13sAAAAd/cachorrinho-doguinho.gif)
