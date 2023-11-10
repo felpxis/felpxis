@@ -10,7 +10,6 @@ Meu nome é Felipe kid ben...
 
 felipe.matos.correia@escola.pr.gov.br
 
-
 ![image](https://github.com/felpxis/felpxis/assets/150472758/8f46406a-3b97-4ab2-8b6b-df32f1514dcd)
 
 
